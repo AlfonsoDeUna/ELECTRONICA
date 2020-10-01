@@ -1,5 +1,6 @@
 # CLASES DE AMPLIFICACIÓN
 
+https://www.youtube.com/watch?v=YuVqccvgNPM
 
 ## CLASE A
 Las clases del championelectronics.
@@ -9,6 +10,8 @@ Las clases del championelectronics.
 https://www.youtube.com/watch?v=2lqwA3lkTT8
 
 ## CLASE AB
+
+https://www.youtube.com/watch?v=BevMR55HZcw
 
 ## CLASE C
 
